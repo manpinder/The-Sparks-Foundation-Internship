@@ -1,1 +1,1 @@
-# TSF-INTERNSHIP
+# Graduate Rotational Internship Program (GRIP)
